@@ -1,3 +1,4 @@
+# Unveiling the Enigma: A Triptych Challenge
 Embark on an intriguing quest where simplicity belies the thrill of discovery. You are invited to a triptych challenge, a three-part journey designed for the joy of unraveling mysteries with ease and intrigue. This experience is tailored for enthusiasts of secret revelations and puzzle solving, where each step seamlessly leads to the next, ensuring a captivating adventure.
 
 ### The Illusive Canvas: A Cloaked Vision
